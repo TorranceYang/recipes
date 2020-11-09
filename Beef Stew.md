@@ -17,6 +17,7 @@
 - 2 tbsp dijon mustard
 - 2 tbsp dry thyme (in tea bag)
 - 2 tsp cornstarch
+- pinch of sugar
 - salt + msg
 
 ## Instructions
@@ -33,9 +34,11 @@
 10. Move to instant pot and cook on "stew/meat" section for around 30 minutes or until beef is fork-tender
 11. Remove bag of thyme
 12. Add slurry of cornstarch in water into stew until desired thickness is reached
-13. Season with salt + msg to taste
+13. Season with salt + msg and a pinch of sugar to taste
 
 ## Tips
 
 - Add whatever seasonings you'd like in addition to the base ones - garlic powder, onion powder, basil, oregano
 - If you don't like your root vegetables super mushy, add them after step 9. Should leave in aromatics though
+- Season as you go if you're just cooking for yourself.
+- Don't skip the sugar! It can cut some of the leftover acidity from the tomato paste. Also can compensate for a dryer wine.

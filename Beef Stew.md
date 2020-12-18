@@ -25,14 +25,14 @@
 1. Liberally season chuck roast with salt and pepper while heating up oil in pot
 2. Sear chuck roast on all sides, prefer a brown crust
 3. Remove chuck roast and add in non-frozen vegetables to sautee for 3 minutes
-4. Lower heat, add a little more oil before frying tomato paste and mustard in pot with vegetables for 2 minutes.
+4. Lower heat, add a little more oil before frying tomato paste and mustard in pot with vegetables and meat for 2 minutes.
 5. Deglaze with 1 cup of red wine.
 6. Allow wine to reduce by about half.
 7. Add 3 cups of broth and lower heat to allow a gentle simmer
 8. Add bag of thyme into pot
 9. Simmer for 1.5 hours uncovered
 10. Move to instant pot and cook on "stew/meat" section for around 30 minutes or until beef is fork-tender
-11. Remove bag of thyme
+11. Remove bag of thyme, add msg if desired 
 12. Add slurry of cornstarch in water into stew until desired thickness is reached
 13. Season with salt + msg and a pinch of sugar to taste
 

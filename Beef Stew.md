@@ -5,13 +5,13 @@
 - 2 lbs chuck roast
 - 1 large onion (or 3 small ones)
 - 1 root vegetable (potato/celery root/etc)
-- 2 large carrots
+- 1 - 2 large carrots
 - Mix of frozen corn + peas
 
-- 3 cups broth (beef preferred)
+- 3 - 4 cups broth (beef preferred)
 - 1 cup red wine
 
-- 1 tbsp cayenne
+- 1 tbsp cayenne (optional)
 - 1 tbsp ground pepper
 - 2 tbsp tomato paste
 - 2 tbsp dijon mustard
@@ -32,13 +32,15 @@
 8. Add bag of thyme into pot
 9. Simmer for 1.5 hours uncovered
 10. Move to instant pot and cook on "stew/meat" section for around 30 minutes or until beef is fork-tender
-11. Remove bag of thyme, add msg if desired 
-12. Add slurry of cornstarch in water into stew until desired thickness is reached
-13. Season with salt + msg and a pinch of sugar to taste
+11. Remove bag of thyme, add cayenne if desired 
+12. Add in frozen vegetables
+13. Add slurry of cornstarch in water into stew until desired thickness is reached
+14. Season with salt + msg and a pinch of sugar to taste
 
 ## Tips
 
 - Add whatever seasonings you'd like in addition to the base ones - garlic powder, onion powder, basil, oregano
 - If you don't like your root vegetables super mushy, add them after step 9. Should leave in aromatics though
-- Season as you go if you're just cooking for yourself.
-- Don't skip the sugar! It can cut some of the leftover acidity from the tomato paste. Also can compensate for a dryer wine.
+- Top off with extra broth if vegetables + meat are peeking over the liquid at any step
+- Season as you go if you're just cooking for yourself
+- Don't skip the sugar! It can cut some of the leftover acidity from the tomato paste. Also can compensate for a dryer wine

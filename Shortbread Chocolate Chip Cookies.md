@@ -12,7 +12,7 @@
 
 Optional
 
-- Demura sugar
+- Demerara sugar
 - Flaky sea salt
 
 ## Instructions
@@ -24,7 +24,7 @@ Optional
 5. Refrigerate dough until firm, ~2 hours
 6. Preheat oven to 350
 7. Beat egg, and brush onto outside of logs
-8. Optional - rub logs in demura sugar
+8. Optional - rub logs in demerara sugar
 9. Cut log up into slices, around 1/2 inch
 10. Optional - sprinkle with sea salt
 11. Place in oven and cook up 12 - 15 minutes
